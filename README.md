@@ -1,2 +1,0 @@
-# arya-pratap-singh
-quiz
